@@ -7,5 +7,5 @@ I have been in different departements throughout all my 3 years and learned equa
 I wish I can give this community my best and contribute even more in the coming years.
 
 and just like we say all the time , "GDG For once, GDG for ever"
-
+ 
 ```PS: I will be sharing some random pics, just from gdg local, or some events , etc etc, but whenever i look at those pics, i can't but remember the great times i had at those moments, so i am gonna leave them here ^^``
